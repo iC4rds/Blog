@@ -1,1 +1,1 @@
-Scream ist mein Lienlingsfilm
+Scream ist mein Lieblingsfilm
