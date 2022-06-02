@@ -15,7 +15,7 @@ Als ich das Wort "gestorben" las war ich ziemlich verwirrt und ging in das Pokè
 "Liebst du mich jetzt?" Im Hintergrund das schwarze Pikachu... mit Stücken von JIMMY angebracht. Es hatte Taubsis Federn auf dem Kopf und Flügel auf dem Rücken.
 
 Obwohl es mir einen kalten Schauer über den Rücken lief spielte ich weiter mit dem Gedanken "Was soll schon schlimmes passieren". Da ich ihn nicht weiter verärgern wollte benutzte ich DEMON im Kampf, doch das hatte merkwürdige Veränderungen auf das Gameplay. 
-DEMON benutze keine Elektro Attacken mehr sondern dunkle Attacken die das gegnerische Pokèmon mit einem Schlag besiegte. Statt, dass das Pokèmon in Ohnmacht viel erschien die Meldung, dass das Pokèmon gestorben sei, oder, dass der Trainer nach einem gewonnenen Trainerkampf sterben müsse. Noch dazu verschwand der Trainer nach dem Kampf.
+DEMON benutze keine Elektro Attacken mehr sondern dunkle Attacken die das gegnerische Pokèmon mit einem Schlag besiegte. Nachdem ein Pokemon besiegt wurde, fiel es nicht wie gewöhnlich in Ohnmacht, sondern verstarb.
 
 Nach ein paar mehr kämpfen ging ich runter und suchte im Internet nach ähnlichen Ereignissen und es schien das eine Handvoll Leute, denen dasselbe passierte das Steckmodul in ihrem Besitz hatten. 
 Aus diesen Geschichten schloss ich das diese Ausgabe durch das Land gegangen ist und von jedem Spieler entweder weggeworfen oder es verkauft wurde. 
