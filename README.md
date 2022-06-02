@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## My Blog or whatever
 
 You can use the [editor on GitHub](https://github.com/iC4rds/My-Blog/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
