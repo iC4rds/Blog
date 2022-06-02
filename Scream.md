@@ -1,1 +1,0 @@
-Scream ist mein Lieblingsfilm
