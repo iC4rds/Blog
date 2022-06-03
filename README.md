@@ -1,5 +1,6 @@
-## My Blog or whatever
+[Über mich](https://ic4rds.github.io/David-Staudacher) | [Weitere Links](https://ic4rds.github.io)
 
+### 2. Juni 2022
 Bevor ich beginne muss ich sagen, dass dies nicht nur eine weitere gruselige Geschichte ist, denn es ist wirklich passiert.
 
 Ich war ein Praktikant bei den Studios zur Weiterentwicklung von alten Pokèmon Spielen und während ich da war gab mir ein Entwickler ein altes Steckmodul. Er sagte das er es auf einem Trödelmarkt gekauft hätte und er es nicht mehr haben wolle, weil es verflucht sei. 
