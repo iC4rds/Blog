@@ -8,7 +8,7 @@ Anscheinend hatte es der Verkäufer in einem Mülleimer gefunden mit der Notiz "
 Ich war so fasziniert von dem "verfluchten" Spiel, dass ich es dummerweise mit nach hause nahm, meinen alten Gameboy unter meinem Bett hervor nahm und das Modul einsteckte und das Spiel spielte.
 
 Direkt ein paar Minuten nach dem Start trat ein Spielfehler auf. Man hatte bei der Wahl des Starters nur ein Pokèmon zur Auswahl: Ein rotäugiges schwarzes Pikachu mit dem Namen DEMON. 
-Man konnte den Namen nicht ändern darum beschloss ich, weil der Name ziemlich hart klang, den Spitznamen zu behalten. Baldschon nachdem ich den Anfangsteil hinter mir gelassen hatte, beschloss ich weitere Pokèmon zu fangen. Schnell fing ich ein Taubsi und gab ihm den Namen JIMMY. Ich zog es DEMON vor weil ich vorhatte ihm Fliegen beizubringen.
+Man konnte den Namen nicht ändern darum beschloss ich, weil der Name ziemlich hart klang, den Spitznamen zu behalten. Baldschon nachdem ich den Anfangsteil hinter mir gelassen hatte, beschloss ich weitere Pokèmon zu fangen. Schnell fing ich ein Taubsi und gab ihm den Namen JIMMY. Ich zog es DEMON vor, weil ich vorhatte ihm Fliegen beizubringen.
 
 Natürlich ließ ich JIMMY öfter kämpfen als DEMON. Nachdem ich ein paar Stunden mit JIMMY gekämpft habe erschien eine Nachricht "DEMON möchte Aufmerksamkeit." Aber ich ignorierte sie. Nach einer weiteren Stunde als ich in Veridian City rumlief kam nochmal eine Meldung "DEMON möchte Aufmerksamkeit". 
 Ich ignorierte sie weiter. Ein paar Minuten später erschien die Meldung "JIMMY ist gestorben".
