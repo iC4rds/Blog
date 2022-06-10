@@ -3,7 +3,7 @@
 ### 2. Juni 2022
 Bevor ich beginne muss ich sagen, dass dies nicht nur eine weitere gruselige Geschichte ist, denn es ist wirklich passiert.
 
-Ich war ein Praktikant bei den Studios zur Weiterentwicklung von alten Pokèmon Spielen und während ich da war gab mir ein Entwickler ein altes Steckmodul. Er sagte das er es auf einem Trödelmarkt gekauft hätte und er es nicht mehr haben wolle, weil es verflucht sei. 
+Ich war ein Praktikant bei den Studios zur Weiterentwicklung von alten Pokèmon Spielen und während ich da war, gab mir ein Entwickler ein altes Steckmodul. Er sagte, dass er es auf einem Trödelmarkt gekauft hätte und er es nicht mehr haben wolle, weil es verflucht sei. 
 Anscheinend hatte es der Verkäufer in einem Mülleimer gefunden mit der Notiz "Dieses Spiel darf niemals mehr gespielt werden" daran. Er hatte die Notiz nicht ernst genommen und erkannte den Horror des Spiels. Ich habe ebenfalls versucht das Spiel durch zu spielen sagte der Entwickler. 
 Ich war so fasziniert von dem "verfluchten" Spiel, dass ich es dummerweise mit nach hause nahm, meinen alten Gameboy unter meinem Bett hervor nahm und das Modul einsteckte und das Spiel spielte.
 
