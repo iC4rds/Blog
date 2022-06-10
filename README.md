@@ -13,9 +13,9 @@ Man konnte den Namen nicht ändern darum beschloss ich, weil der Name ziemlich h
 Natürlich ließ ich JIMMY öfter kämpfen als DEMON. Nachdem ich ein paar Stunden mit JIMMY gekämpft habe erschien eine Nachricht "DEMON möchte Aufmerksamkeit." Aber ich ignorierte sie. Nach einer weiteren Stunde als ich in Veridian City rumlief kam nochmal eine Meldung "DEMON möchte Aufmerksamkeit". 
 Ich ignorierte sie weiter. Ein paar Minuten später erschien die Meldung "JIMMY ist gestorben".
 Als ich das Wort "gestorben" las war ich ziemlich verwirrt und ging in das Pokèmon Menü wo es hieß das JIMMY tot sei. Ich zog los um ein weiteres Taubsi zu fangen und dann erschien etwas was wie der Evolutionsbildschirm aussah, aber statt ein Pokèmon, das sich entwickelte sah man eine Nachricht. 
-"Liebst du mich jetzt?" Im Hintergrund das schwarze Pikachu... mit Stücken von JIMMY angebracht. Es hatte Taubsis Federn auf dem Kopf und Flügel auf dem Rücken.
+"Liebst du mich jetzt?" Im Hintergrund das schwarze Pikachu mit Stücken von JIMMY angebracht. Es hatte Taubsis Federn auf dem Kopf und Flügel auf dem Rücken.
 
-Obwohl es mir einen kalten Schauer über den Rücken lief spielte ich weiter mit dem Gedanken "Was soll schon schlimmes passieren". Da ich ihn nicht weiter verärgern wollte benutzte ich DEMON im Kampf, doch das hatte merkwürdige Veränderungen auf das Gameplay. 
+Obwohl es mir einen kalten Schauer über den Rücken lief spielte ich weiter mit dem Gedanken "Was soll schon schlimmes passieren?". Da ich ihn nicht weiter verärgern wollte benutzte ich DEMON im Kampf, doch das hatte merkwürdige Veränderungen auf das Gameplay. 
 DEMON benutze keine Elektro Attacken mehr sondern dunkle Attacken die das gegnerische Pokèmon mit einem Schlag besiegte. Nachdem ein Pokemon besiegt wurde, fiel es nicht wie gewöhnlich in Ohnmacht, sondern verstarb.
 
 Nach ein paar mehr kämpfen ging an den PC und suchte im Internet nach ähnlichen Ereignissen und es schien das eine handvoll Leute, die ebenfalls in den Kontakt mit dem Modul kamen. Alle schilderten dieselben Ereignisse.
