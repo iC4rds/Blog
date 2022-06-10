@@ -18,7 +18,7 @@ Als ich das Wort "gestorben" las war ich ziemlich verwirrt und ging in das Pokè
 Obwohl es mir einen kalten Schauer über den Rücken lief spielte ich weiter mit dem Gedanken "Was soll schon schlimmes passieren?". Da ich ihn nicht weiter verärgern wollte benutzte ich DEMON im Kampf, doch das hatte merkwürdige Veränderungen auf das Gameplay. 
 DEMON benutze keine Elektro Attacken mehr sondern dunkle Attacken die das gegnerische Pokèmon mit einem Schlag besiegte. Nachdem ein Pokemon besiegt wurde, fiel es nicht wie gewöhnlich in Ohnmacht, sondern verstarb.
 
-Nach ein paar mehr kämpfen ging an den PC und suchte im Internet nach ähnlichen Ereignissen und es schien das eine handvoll Leute, die ebenfalls in den Kontakt mit dem Modul kamen. Alle schilderten dieselben Ereignisse.
+Nach ein paar mehr kämpfen ging ich an den PC und suchte im Internet nach ähnlichen Ereignissen und es schien das eine handvoll Leute, die ebenfalls in den Kontakt mit dem Modul kamen. Alle schilderten dieselben Ereignisse.
 Dieses Modul ging durch das ganze Land, von Person zu Person. Entweder wurde es verkauft oder weggeschmissen und von jemand anderem danach wiedergefunden.
 Ich habe sogar Berichte in Foren und Blogs gefunden, die besagen, dass alle, die das Modul jemals besaßen, Selbstmord begiengen nachdem sie das Spiel losgeworden hatten.
 
